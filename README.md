@@ -1,2 +1,0 @@
-# burundi
-et et
